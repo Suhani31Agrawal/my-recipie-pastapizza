@@ -1,0 +1,4 @@
+Directions
+Preheat oven to 400°. Cook pasta according to package directions; drain.
+In a large cast-iron or other ovenproof skillet, heat 1 teaspoon oil over medium heat. Add mushrooms, green pepper and onion; saute until tender. Remove with a slotted spoon and keep warm. Increase heat to medium-high. In same skillet, heat remaining oil. Spread pasta evenly in skillet to form a crust. Cook until lightly browned, 5-7 minutes.
+Turn crust onto a large plate. Reduce heat to medium; slide crust back into skillet. Top with pizza sauce, sauteed vegetables and olives; sprinkle with cheese and Italian seasoning. Bake until cheese is melted, 10-12 minutes.
